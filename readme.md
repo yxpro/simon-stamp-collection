@@ -15,3 +15,7 @@ It was fun while it was paying the bills, but appreciation for stamp collecting 
 as folks have wised up to the fact that it's really lame as far as hobbies go.
 
 Poor Simon.
+
+Simon has had a change of heart. He is back in the game and better than ever!
+
+His latest rare stamp has a painting of Genghiz Khan.
